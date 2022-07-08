@@ -8,4 +8,4 @@
 
 Smile as this Patrick || ~~Life is good~~
 
-<img src="https://yt3.ggpht.com/0h7kqVdmzrJbwEUmI9NFxJ8FioOEQdlqhSZP_6IGHOg53rMWaGMCEDBAIpBCbYqvUII0qFUAiA=s900-c-k-c0x00ffffff-no-rj" width="300"/>
+<img src="https://yt3.ggpht.com/0h7kqVdmzrJbwEUmI9NFxJ8FioOEQdlqhSZP_6IGHOg53rMWaGMCEDBAIpBCbYqvUII0qFUAiA=s900-c-k-c0x00ffffff-no-rj" width="250"/>
