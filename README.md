@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with Zuk 
 - 📫 How to reach me [adletbek9@gmail.com]
 
->#### A little bit about myself. My name is Adlet and I am 23, studying in Malaysia, doing my degree in IT sphere. Hopefully in future wants to see myself as advanced developer. I am interested in Football and the club that I support is Real Madrid and I really love music and donno how to live without it (kiddin')
+>#### A little bit about myself. My name is Adlet, studying in Malaysia, doing my degree in IT sphere. Hopefully in future wants to see myself as advanced developer. I am interested in Football and the club that I support is Real Madrid and I really love music and donno how to live without it (kiddin')
 
 Smile as this Patrick || ~~Life is good~~
 
